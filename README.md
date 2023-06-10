@@ -1,0 +1,1 @@
+A blog documenting my journey of self-improvement.
